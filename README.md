@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **cheatinginapezx@gmail.com**
 
-- ⚡ Fun fact **I learned mostly by pasting**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
